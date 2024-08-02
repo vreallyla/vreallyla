@@ -1,4 +1,4 @@
-##Fahmi Rizky Maulidy
+## Fahmi Rizky Maulidy
 *Email*: fahmirizky1997@gmail.com
 
 #Welcome to My GitHub Profile!
